@@ -15,11 +15,15 @@ kit de cabelo cacheado :https://www.belezanaweb.com.br/kit-wella-professionals-n
 FINALIZADOR 
 
 https://www.belezanaweb.com.br/kerastase-elixir-ultime-lhuile-rose-oleo-capilar-100ml/
+
 https://www.belezanaweb.com.br/wella-professionals-oil-reflections-oleo-capilar-100ml/
+
 https://www.belezanaweb.com.br/elseve-loreal-paris-oleo-extraordinario-tratamento-reconstrutor-capilar-100ml/
 
 PRODUTOS PARA USAR FONTE DE CALOR 
 
 https://www.belezanaweb.com.br/truss-alexandre-herchcovitch-amino-protetor-termico-225ml/
+
 https://www.belezanaweb.com.br/kerastase-genesis-defense-thermique-protetor-termico-150ml/
+
 https://www.belezanaweb.com.br/kerastase-resistance-extentioniste-thermique-protetor-termico-150ml/
