@@ -27,3 +27,7 @@ https://www.belezanaweb.com.br/truss-alexandre-herchcovitch-amino-protetor-termi
 https://www.belezanaweb.com.br/kerastase-genesis-defense-thermique-protetor-termico-150ml/
 
 https://www.belezanaweb.com.br/kerastase-resistance-extentioniste-thermique-protetor-termico-150ml/
+
+se tiver alguma duvida entrar em contato 43 9999-2345 OU no nosso instagram @_beautyhairoficial
+
+PARCELAMOS ATE 10X SEM JUROS 
